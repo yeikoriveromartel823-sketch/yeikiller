@@ -1,2 +1,2 @@
 # yeikiller
-the fucking amo
+hefucking amo
